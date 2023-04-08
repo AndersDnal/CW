@@ -2,32 +2,36 @@
 1st CW PROJECT 
 
 
-*** CW project - last edited 11:07 2023-04-07 ***
+*** CW project - last edited 13:37CET 2023-04-08 ***
 
 
-Please refer to ←ㅤ→ CW .com/members/11890038/ or Playtime8088 for further information.
+Please refer to for further information.
 
 To access this profile information in a more readable format, plz see my GitHub @ https://github.com/AndersDnal/CW/
 
 
-For instant access to locked content, plz send a tip of (eq.) $10//£10/€10/100SEK/100NOK after **tx-fees** in either BTC (bitcoin) ←ㅤ→ or ←ㅤ→ XMR (monero) ←ㅤ→
+For instant access to locked content, plz send a tip of (eq.) $10/£10/€10/100SEK/100NOK after **tx-fees** in either BTC (bitcoin) ←→ or ←→ XMR (monero)
 
- ←ㅤ→←ㅤ→ OR ←ㅤ→←ㅤ→
+ ←→←→ OR ←→←→
 
-$15//£15/€10/150SEK/150NOK to my Revolut.com account [1] [2]. Various payment options are accepted and no membership is needed for payments - you can use Apple Pay, Google Pay,Debit/Credit card, etc. Amazon gift cards my also be accepted in the future as well as PayPal, but not today.
+$15/£15/€10/150SEK/150NOK to my Revolut.com account [1] [2]. Various payment options are accepted and no membership is needed for payments - you can use Apple Pay, Google Pay ,Debit/Credit card, etc. Amazon gift cards may also be accepted in the future as well as PayPal, but not yet.
 
-If interested in access, MSG me on CW for further info on payment (a BTC/XMR addresses or my revolut-url/handle) 8-) 
+If you want to access content, MSG Playtime8088 (11890038) at CW for further details on payment (a BTC/XMR address or my revolut-url/handle) 8-) 
 
-You can also msg me at JujitSuProp @ protonmail.com - PLZ rememer to enter your CW nick/member-number in the msd-field!
+You can also msg me at JujitSuProp @ protonmail.com - PLZ remember to enter your CW nick/member-number in the msg-field!
 
 ***UPDATE***
-As of 7th April 2023 at 11CET, I've so far uploaded +700 vids, so far 324 are accessble by friendship while 400 clips still are in server processing during the next 48H. Be sure to check out me profile for continues updates!!
+As of 8th April 2023 at 13CET, I've so far uploaded ~850 vids (yesterday ~700). ATM 441 clips are accessble by friendship (yesterday 324) while ~400 clips still are processed by CW servers. Be sure to check out me profile for continues updates!!
+
+***UPDATE2***
+At this GitHub repro, further details and plans for sharing content in the future will be outlined and linked from this readme-page.
 
 
 
 //Playtime8088, 2nd disciple of SweSnowShoe
 
 [1] Revolut Bank UAB is licensed and regulated by the Bank of Lithuania within the European Union. See https://en.wikipedia.org/wiki/Revolut
+
 [2} See https://www.revolut.com/about-revolut/
 
 
